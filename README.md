@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nottippo
+- 👀 I’m interested in development and gaming
+- 🌱 I’m currently learning your mom
+- 📫 How to reach me Not Tippo#3560
